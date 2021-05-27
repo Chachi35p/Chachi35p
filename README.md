@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @Chachi35p, I'm argentinian, I speak english and spanish, i'm currently learining japanese
-- 👀 I’m interested in Anime, role-play games, hololive, vtubers and languages
-- 🌱 I’m currently learning japanese and a electronic technical
-- 💞️ I’m looking to collaborate on fan-games, on reading proof translations and more!
-- 📫 How to reach me: Twitter: @ChachiP55919255. 
+
